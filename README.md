@@ -7,7 +7,7 @@
 - ⚡ Fun fact: I love to play games , play basketball 🏀 and skateborading 
 ## ⏲ What we are doing now:
 I'm doing and selling artifical intelegent projects 🤖
-I'm a Programming an cheats for people 👩‍💻
+I'm a Programming cheats for people 👩‍💻
 I also work as a FreeLancer 🆓.
 
 <br />
