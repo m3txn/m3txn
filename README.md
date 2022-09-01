@@ -14,4 +14,4 @@ I also work as a FreeLancer 🆓.
 
 ### 📩 Connect with me:
 
-[<img align="left" alt="Discord" width="24px" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/discord.svg" />][Discord]
+[<img align="left" alt="Discord" width="24px" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/discord.svg" />[Discord]
