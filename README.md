@@ -14,7 +14,7 @@ I also work as a FreeLancer 🆓.
 
 ### 📩 Connect with me:
 
-[<img align="left" alt="Discord" width="24px" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/discord.svg" />]My discord name is:[<strong>Metin#0101</strong>] 
+[<img align="left" alt="Discord" width="24px" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/discord.svg" />]My discord name is: Metin#0101
 
-Metin#0101
+
 
